@@ -1,3 +1,3 @@
 "Eric Kwak"
-kwake@oregonstate.edu
-navy
+62
+OneRepublic
